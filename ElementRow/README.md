@@ -1,0 +1,1 @@
+Pogladowy widok:
